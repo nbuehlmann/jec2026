@@ -1,3 +1,3 @@
-# jec2026
+# Junior European Cup 2026 - Switzerland
 
-Mein Text.
+Coming soon...
